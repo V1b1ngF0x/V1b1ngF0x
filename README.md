@@ -20,10 +20,11 @@
 <p> I always sitting/laying around Roblox Forsaken spots! So, don't be scared.. just W2I (Whisper To Interact)! </p> 
 <p> ⋆- c&h and w2i.. Also, I love cuddle very much as am addicting to it! </p> 
 <p> ⋆- Feel free to cuddle with me! It comforting me down from the anxiety! ( ˶ˆᗜˆ˵ ) </p>
+<p> ⋆- Cuddle with me and you start to acting weird/troll.. I'll stay away immediately or leave. (Or hiding) </p>
 
 <h1>   ୨୧ ꒰ Fun Facts ꒱ ୨୧ </h1> 
 <p> ✧˖°.- I'm Multilingual as I understand.. 12 languages! (From Native to Lastest)= </p>
 <p> =─ Thai, English, Chinese, German, Czech, Spainish, Portuguese, French, Indo, Malay, Russian, and.. Japanese! </p>
 <p> =── Korean and Filipino.. I'll be learning them soon! </p>
 <p> =─── Knowing too many languages causing me progressing something SO SLOW. //sobs sobs </p>
-<p> ⟡ ݁₊ .- Cuddle with me and you start to acting weird/troll.. I'll stay away immediately or leave. (Or hiding) </p>
+<p> ⟡ ݁₊ .- I love to watching and reading conversations around.. so don't be afraid if I accidentially stalk you! </p>
